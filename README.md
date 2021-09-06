@@ -1,0 +1,1 @@
+# Case-Studies-Analysis-using-JMP
